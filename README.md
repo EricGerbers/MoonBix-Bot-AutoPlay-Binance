@@ -1,2 +1,2 @@
-# MoonBix-Bot-AutoPlay-Binance
-Bot Auto Play for Binance Mini Game MoonBix
+# Contact with me via Telegram
+Connect via link: https://t.me/DakotaLynn
